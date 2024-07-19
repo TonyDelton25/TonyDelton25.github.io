@@ -2,4 +2,4 @@
 - [https://youtu.be/tRL7tJoF5KU](https://youtu.be/tRL7tJoF5KU)
 - [https://www.reddit.com/user/EmuNo1606/](https://www.reddit.com/user/EmuNo1606/)
 - [https://tonydelton25.quora.com/](https://tonydelton25.quora.com/)
-- 
+- [https://x.com/TonyDelton25](https://x.com/TonyDelton25)
