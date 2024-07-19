@@ -1,0 +1,5 @@
+- [https://medium.com](https://medium.com/@TonyDelton25/dragon-age-the-veilguard-to-feature-full-nudity-a80669ee619a)
+- [https://youtu.be/tRL7tJoF5KU](https://youtu.be/tRL7tJoF5KU)
+- [https://www.reddit.com/user/EmuNo1606/](https://www.reddit.com/user/EmuNo1606/)
+- [https://tonydelton25.quora.com/](https://tonydelton25.quora.com/)
+- 
